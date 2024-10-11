@@ -1,5 +1,5 @@
-![descrição do Gif](https://media.tenor.com/_8A200yL7ZkAAAAi/coquette-aesthetic.gif)   
-## Hi there 👋
+![descrição do Gif](https://media.tenor.com/Q8_Bxonht8UAAAAi/pink-banner.gif)        
+
 **Meu nome é Natália Dall'Agnol 🦢🖤**
 
 **E-mail=** natalia.spejorim@escola.pr.gov.br
