@@ -1,3 +1,4 @@
+![descrição do Gif](https://media.tenor.com/_8A200yL7ZkAAAAi/coquette-aesthetic.gif)   
 ## Hi there 👋
 **Meu nome é Natália Dall'Agnol 🦢🖤**
 
