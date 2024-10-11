@@ -5,7 +5,7 @@
 
 ![descrição do Gif](https://media1.tenor.com/m/zxI96_NJ6tEAAAAC/alice-in.gif)        
 
-Vanished (Crystal Castles)
+Vanished (Crystal Castles) 🩸🔪
 
 In the dark, killer awaits.
 To kill a life, life you make.
@@ -16,7 +16,7 @@ Your heart, (does) things to me.
 Running feet, through my blood.
 My ghost inside you, soon will be.
 
-Genesis (Grimes)
+Genesis (Grimes) 🌹🩰
 
 My heart, I never be.
 I never see.
