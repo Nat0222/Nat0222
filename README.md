@@ -1,5 +1,4 @@
-![descrição do Gif](https://media.tenor.com/Q8_Bxonht8UAAAAi/pink-banner.gif)        
-
+Oi!
 **Meu nome é Natália Dall'Agnol 🦢🖤**
 
 **E-mail=** natalia.spejorim@escola.pr.gov.br
