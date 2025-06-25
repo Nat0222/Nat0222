@@ -5,17 +5,6 @@ Oi!
 
 ![descrição do Gif](https://media1.tenor.com/m/zxI96_NJ6tEAAAAC/alice-in.gif)        
 
-Vanished (Crystal Castles) 🩸🔪
-
-In the dark, killer awaits.
-To kill a life, life you make.
-You do another, death can live.
-Just keep on dan(cing), movie you're in.
-Smell of your sweat, lures me in.
-Your heart, (does) things to me.
-Running feet, through my blood.
-My ghost inside you, soon will be.
-
 Genesis (Grimes) 🌹🩰
 
 My heart, I never be.
